@@ -1,2 +1,1 @@
-# smpbokepviral
-smpbokepviral
+# [smpbokepviral](https://smpbokepviral.pages.dev)
